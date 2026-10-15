@@ -1,2 +1,4 @@
 # BRXZZX_GAMING
-The personal gaming potel frome my free fire stream an social media links 
+the personal gaming potel for my free fire stream and social media Inks
+
+ my free fire stream an social media links 
